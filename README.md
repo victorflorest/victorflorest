@@ -1,5 +1,5 @@
 # 💫 About Me:
- regard myself as a proactive, responsible and hard-working person, who is always willing to learn and rise up to new challenges. I have good interpersonal skills, which allow me to work well in groups. At present, I am looking for a company where I can steer my career in new directions and grow professionally in new fields.
+I regard myself as a proactive, responsible and hard-working person, who is always willing to learn and rise up to new challenges. I have good interpersonal skills, which allow me to work well in groups. At present, I am looking for a company where I can steer my career in new directions and grow professionally in new fields.
 
 
 ## 🌐 Socials:
